@@ -1,1 +1,1 @@
-Je suis né en juin.
+Je suis né le 25 juin.
